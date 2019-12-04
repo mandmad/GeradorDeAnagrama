@@ -1,2 +1,3 @@
 # GeradorDeAnagrama
-Upei todas as versões do que eu tentei fazer o/
+Segue meu linkedin para contato:
+https://linkedin.com/in/mandmad
